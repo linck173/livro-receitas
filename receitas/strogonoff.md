@@ -2,11 +2,9 @@
 
 ### Ingredientes
 
-* penis
-* penis
-* penis
-* penis
-* penis
+* Já ta batendo meio dia, tô coçando o cú
+* minha mãe cozinhando
+* strogonoff de tatu
 
 
 
